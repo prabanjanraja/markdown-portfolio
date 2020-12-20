@@ -1,4 +1,4 @@
-# My favourite self help books:
+# My favourite self help books
 
 - The subtle art of not giving a fu*k
 - Mastery
